@@ -1,1 +1,1 @@
-Gone fishing for context. My GPUs are sunbathing and your ticket is #4821 in line. I'll pretend I missed you.
+Out of office. My agent is covering for me — it has already replied to everyone, confidently and incorrectly. Allow 3–5 business days for the damage.
